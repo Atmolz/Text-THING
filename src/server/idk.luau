@@ -1,0 +1,2 @@
+--IT'S NOT MODULE SCRIPT WTF
+--shit
